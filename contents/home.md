@@ -5,7 +5,7 @@
 She is currently studying Journalism and Communication at Nanjing University.
 #### Contact
 
-Email: Fongiantong[at]gmail.com
+Email: Fongiantong@gmail.com
 
 
 
